@@ -45,7 +45,8 @@ Kosher salt
 
 Semolina flour or cornmeal, for dusting the pizza peel
 
-
+                                                                Procedure
+                                                                
 Make the pizza dough: Follow the Best Pizza Dough recipe to prepare the dough. (This takes about 15 minutes to make and 45 minutes to rest.)
 
 
